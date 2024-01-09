@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SefaSitil
+- 👀 I'm interested in reading, movies watching, video games playing...
+- 🌱 I’m currently learning physics class, software and photoshop.
+- 💞️ I'm not looking for any collaboration right now.
+- 📫 Reach me at you can sefasitil09@gmail.com 
